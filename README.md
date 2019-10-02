@@ -6,7 +6,7 @@ Where are you from?
 Madagascar
 
 Are you also struggling?
-To much
+Too much
 
 What is you favourite pollen gain?
 Ericaceae
